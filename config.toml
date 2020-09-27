@@ -1,4 +1,4 @@
-baseURL = "https://mysuperspecialrecipes.web.app/"
+baseURL = "https://cuisinebase.web.app/"
 languageCode = "en-us"
 title = "Best Recipes"
 theme = "z"
@@ -40,8 +40,8 @@ theme = "z"
   weight = 1
 
 [author]
-    name = "Clara Bernadette"
-    homepage = "https://mysuperspecialrecipes.web.app/"
+    name = "Safitri"
+    homepage = "https://cuisinebase.web.app/"
     bio = "True Food Lover"
     image = "https://i.imgur.com/qNQv8nK.jpg"
 
