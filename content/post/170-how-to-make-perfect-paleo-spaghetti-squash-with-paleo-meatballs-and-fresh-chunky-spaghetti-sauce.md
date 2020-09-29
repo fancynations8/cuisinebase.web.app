@@ -1,0 +1,135 @@
+---
+description: "How to Make Perfect Paleo Spaghetti squash with paleo meatballs and fresh chunky spaghetti sauce"
+title: "How to Make Perfect Paleo Spaghetti squash with paleo meatballs and fresh chunky spaghetti sauce"
+slug: 170-how-to-make-perfect-paleo-spaghetti-squash-with-paleo-meatballs-and-fresh-chunky-spaghetti-sauce
+date: 2020-05-22T13:07:33.693Z
+image: https://img-global.cpcdn.com/recipes/6346222323367936/751x532cq70/paleo-spaghetti-squash-with-paleo-meatballs-and-fresh-chunky-spaghetti-sauce-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/6346222323367936/751x532cq70/paleo-spaghetti-squash-with-paleo-meatballs-and-fresh-chunky-spaghetti-sauce-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/6346222323367936/751x532cq70/paleo-spaghetti-squash-with-paleo-meatballs-and-fresh-chunky-spaghetti-sauce-recipe-main-photo.jpg
+author: Terry McGuire
+ratingvalue: 3.2
+reviewcount: 14
+recipeingredient:
+- " spaghetti squash"
+- "1 speghetti squash"
+- " spaghetti squash continued "
+- "1/4 tsp salt and pepper"
+- "1 tbsp olive oil"
+- " Fresh chunky spaghetti sauce"
+- "1 small onion diced"
+- "3 gloves of garlic crushed or minced"
+- "3 large mushrooms sliced"
+- "1 small zucchini diced"
+- "1 can of petite diced tomatoes the ones with basil and garlic is my favorite"
+- "1 small can of tomato paste  I like the garlic and basil infused ones"
+- "3 tbsp fresh chopped basil"
+- "1 tbsp fresh copped oregano"
+- "1 salt to taste"
+- "1 1/2 tbsp honey"
+- "2 tbsp red wine"
+- "1 other vegetable options broccoli  carrots cauliflower  spinach and bell peppers"
+- " paleo meatballs"
+- "2 Italian sausage"
+- "1/2 lb ground beef"
+- "1 egg"
+- "1 tbsp almond butter"
+- "1/4 cup almond flour"
+- "1/2 tsp salt pepper and garlic powder"
+- "3 tbsp fresh chopped basil"
+- "1/2 tbsp fresh chopped oregano"
+recipeinstructions:
+- "Preheat oven to 350"
+- "Cut squash in half lengthwise and remove seeds"
+- "Generously season with salt and pepper (garlic powder if so desired)"
+- "Drizzle olive oil over inner surface of squash"
+- "In a baking dish (13x9) place squash cut side down.  Cover with foil and bake for about 30 -35 mins."
+- "Next, saute onions and garlic in a splash of olive oil"
+- "When onions are translucent add mushrooms.  Saute until onions are golden brown"
+- "Add wine let cook down for about 3 mins."
+- "Add veggies and the of diced tomatoes and let simmer for 10 mins"
+- "Add tomato paste and fill the diced tomato can up with water add to sauce.  Let simmer on low to med heat. Stir as necessary"
+- "Mix all meat ball ingredients together (some may like more salt, pepper and garlic powder)"
+- "Form into balls and pan fry in a splah of olive oil.  Make sure meatballs are dark brown and well cooked."
+- "*** When the squash is cooked and cooled take a fork and &#34;rake&#34; it through the flesh top to center of the &#34;bowl&#34; to create the spaghetti effect ***"
+categories:
+- Recipe
+tags:
+- paleo
+- spaghetti
+- squash
+
+katakunci: paleo spaghetti squash 
+nutrition: 270 calories
+recipecuisine: American
+preptime: "PT37M"
+cooktime: "PT40M"
+recipeyield: "2"
+recipecategory: Lunch
+
+---
+
+
+![Paleo Spaghetti squash with paleo meatballs and fresh chunky spaghetti sauce](https://img-global.cpcdn.com/recipes/6346222323367936/751x532cq70/paleo-spaghetti-squash-with-paleo-meatballs-and-fresh-chunky-spaghetti-sauce-recipe-main-photo.jpg)
+
+Hello everybody, hope you're having an amazing day today. Today, I will show you a way to prepare a distinctive dish, paleo spaghetti squash with paleo meatballs and fresh chunky spaghetti sauce. One of my favorites. For mine, I'm gonna make it a little bit unique. This is gonna smell and look delicious.
+
+Paleo Spaghetti squash with paleo meatballs and fresh chunky spaghetti sauce is one of the most favored of recent trending meals in the world. It's easy, it is quick, it tastes delicious. It's appreciated by millions daily. They are nice and they look wonderful. Paleo Spaghetti squash with paleo meatballs and fresh chunky spaghetti sauce is something which I have loved my entire life.
+
+The first time that I cooked spaghetti squash, it was like a light bulb went off in my head. The tender strands make a great substitute for pasta. You can serve it with meat sauce, with pesto, even baked in the oven as a casserole.
+
+
+To begin with this recipe, we have to prepare a few components. You can cook paleo spaghetti squash with paleo meatballs and fresh chunky spaghetti sauce using 27 ingredients and 13 steps. Here is how you cook that.
+
+##### The ingredients needed to make Paleo Spaghetti squash with paleo meatballs and fresh chunky spaghetti sauce:
+
+1. Get  spaghetti squash
+1. Get 1 speghetti squash
+1. Take  spaghetti squash continued. ..
+1. Get 1/4 tsp salt and pepper
+1. Get 1 tbsp olive oil
+1. Prepare  Fresh chunky spaghetti sauce
+1. Take 1 small onion diced
+1. Make ready 3 gloves of garlic crushed or minced
+1. Prepare 3 large mushrooms sliced
+1. Prepare 1 small zucchini diced
+1. Get 1 can of petite diced tomatoes (the ones with basil and garlic is my favorite)
+1. Prepare 1 small can of tomato paste ( I like the garlic and basil infused ones)
+1. Prepare 3 tbsp fresh chopped basil
+1. Get 1 tbsp fresh copped oregano
+1. Take 1 salt to taste
+1. Make ready 1 1/2 tbsp honey
+1. Get 2 tbsp red wine
+1. Get 1 other vegetable options: broccoli,  carrots, cauliflower,  spinach and bell peppers
+1. Get  paleo meatballs
+1. Get 2 Italian sausage
+1. Get 1/2 lb ground beef
+1. Get 1 egg
+1. Prepare 1 tbsp almond butter
+1. Take 1/4 cup almond flour
+1. Take 1/2 tsp salt, pepper, and garlic powder
+1. Get 3 tbsp fresh chopped basil
+1. Take 1/2 tbsp fresh chopped oregano
+
+
+Gently remove the squash nests from the muffin tins and fill each one with a meatball. Top with Paleo marinara and fresh basil, and serve! The old-school favorite, spaghetti and meatballs, is a major challenge to the paleo enthusiast. Plate the spaghetti squash on serving. 
+
+##### Steps to make Paleo Spaghetti squash with paleo meatballs and fresh chunky spaghetti sauce:
+
+1. Preheat oven to 350
+1. Cut squash in half lengthwise and remove seeds
+1. Generously season with salt and pepper (garlic powder if so desired)
+1. Drizzle olive oil over inner surface of squash
+1. In a baking dish (13x9) place squash cut side down.  Cover with foil and bake for about 30 -35 mins.
+1. Next, saute onions and garlic in a splash of olive oil
+1. When onions are translucent add mushrooms.  Saute until onions are golden brown
+1. Add wine let cook down for about 3 mins.
+1. Add veggies and the of diced tomatoes and let simmer for 10 mins
+1. Add tomato paste and fill the diced tomato can up with water add to sauce.  Let simmer on low to med heat. Stir as necessary
+1. Mix all meat ball ingredients together (some may like more salt, pepper and garlic powder)
+1. Form into balls and pan fry in a splah of olive oil.  Make sure meatballs are dark brown and well cooked.
+1. *** When the squash is cooked and cooled take a fork and &#34;rake&#34; it through the flesh top to center of the &#34;bowl&#34; to create the spaghetti effect ***
+
+
+Use a large fork to pull the &#34;spaghetti&#34; out of your squash, then top with your meatballs and sauce. Garnish with parsley if you feel fancy, and enjoy! Meatballs- I&#39;m new to paleo; I usually use egg and bread crumbs and parm cheese in mine; obv I&#39;m changing over so - can I keep the seasoning and. I&#39;m surprised I haven&#39;t shared this recipe yet! This savory, cozy soup is the perfect answer to your spaghetti and meatball cravings! 
+
+So that is going to wrap it up with this exceptional food paleo spaghetti squash with paleo meatballs and fresh chunky spaghetti sauce recipe. Thank you very much for your time. I am sure that you can make this at home. There is gonna be more interesting food in home recipes coming up. Don't forget to bookmark this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
